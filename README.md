@@ -23,4 +23,4 @@ Minhas habilidades e experiências incluem:
  
  
 
-Meu objetivo é me tornar um Especialista Tático Multidisciplinar, contribuindo ativamente para o sucesso da empresa e agregando valor aos stakeholders.
+
